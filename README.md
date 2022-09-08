@@ -1,1 +1,1 @@
-blue whale
+Blue Whale
